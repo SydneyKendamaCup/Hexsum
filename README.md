@@ -1,0 +1,2 @@
+# Hexsum
+Hexsum Privacy Policy
